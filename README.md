@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nname1858@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15A69axfK1EKPrQRZLfwJC75wo-I0VQoI/view?usp=drive_link](https://drive.google.com/file/d/15A69axfK1EKPrQRZLfwJC75wo-I0VQoI/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1KTnx1YD_116219ZrfWNgUQmW3Zyh_V1y/view?usp=drive_link](https://drive.google.com/file/d/1KTnx1YD_116219ZrfWNgUQmW3Zyh_V1y/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
